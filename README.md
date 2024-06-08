@@ -23,7 +23,7 @@
 
 - 📫 How to reach me **amnaawais941@gmail.com**
 
-- ⚡ Fun fact **I Am Crazzy**
+- ⚡ Fun fact **I Am Funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
